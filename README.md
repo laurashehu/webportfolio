@@ -1,1 +1,1 @@
-![desktop-demo](https://github.com/laurashehu/webportfolio/assets/120132646/c2ff1fae-167d-4d6d-9250-a5ab95aadee7)
+![website-demo](https://github.com/laurashehu/webportfolio/assets/120132646/f70bb0ed-e287-4b38-b1cc-8b71a0ee6f28)
